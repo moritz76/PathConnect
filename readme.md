@@ -1,1 +1,1 @@
-
+We offer German hosted cloud storage with focus to privacy and security. You have the possibility to chat, (video)-Call, create and share files, synchronize all your data with all your devices and some more features – come and have a look.
